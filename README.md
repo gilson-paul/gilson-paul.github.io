@@ -1,1 +1,0 @@
-# gilson-paul.github.io
